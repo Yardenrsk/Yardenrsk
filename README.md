@@ -3,5 +3,5 @@
 - Love to solve problems 💡 
 - @me for fun project ideas 🤝 😄
 
-**Hope you'll enjoy my profile! feel free to suggest new features 
+**Hope you'll enjoy my profile! Feel free to suggest new features 
 
